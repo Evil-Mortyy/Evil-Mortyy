@@ -1,6 +1,7 @@
- wip
+- wip
 
-<img width="1458" height="792" alt="Без названия736_20261004144937" src="https://github.com/user-attachments/assets/959e474b-43e5-467a-80bd-18f9f1e57710" />
+<img width="3135" height="1981" alt="Untitled863_Restored_20261111174722" src="https://github.com/user-attachments/assets/3650bce9-16ec-40ef-8f89-fe05e23a0a4b" />
+
 
 
 
